@@ -1,0 +1,1 @@
+# krotystore.github.io
